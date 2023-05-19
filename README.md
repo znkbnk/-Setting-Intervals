@@ -1,1 +1,1 @@
-# -Setting-Intervals
+# Setting-Intervals
